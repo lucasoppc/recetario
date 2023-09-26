@@ -22,6 +22,7 @@
 11. Precalentar el horno a 180°C.
 12. Cocinar los panes en el horno precalentado durante aproximadamente 25 minutos o hasta que estén dorados y suenen huecos al golpear la parte inferior.
 
-## Ajustes 
-- Con mi molde deberia hacer unos 650g de harina.
-- Con mi horno Beko, entre 150 y 200 grados tarda un poco mas de 25 minutos.
+## Notas 
+- Dejar leudar hasta que este casi tocando la tapa. Porque no crece mucho mas.
+- Con mi horno Beko, entre 150 y 200 grados tarda un poco mas de 25 minutos. Dejar 35 minutos. Aprovechanodo a girar el molde.
+- Sellar bien con los cantos de la mano para que quede bien apretado el rollo. Esta tecnica se llama "Ovillar" el pan.
