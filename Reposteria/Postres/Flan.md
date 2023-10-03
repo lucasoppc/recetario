@@ -14,6 +14,6 @@
 5. Templar los huevos con un poco de leche hasta incorporar completamente.
 6. Poner en el molde y tapar con papel aluminio.
 7. Poner en banio maria al horno.
-8. Temperatura entre 100 y 150, aun no di con la tecla.
+8. Temperatura entre 100 y 150, aun no di con la tecla. 150 es muuucho mucho, la proxima probar 130. Si hierve el interior marcha. Capaz solo abajo sino. O menos tiempo.
 9. Calor arriba y abajo y ventilador.
 10. Tiempo estimado 1 Hora.
