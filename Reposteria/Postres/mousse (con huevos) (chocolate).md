@@ -27,5 +27,11 @@
 
 7. Refrigera durante al menos 4 horas, o hasta que el mousse esté firme.
 
+## Notas:
+
+1. No me gusto mucho esta mouse solo de huevo porque no queda tan suave y cremosa.
+2. El chocolate Aguila creo que es mucho y muy amargo.
+3. Ver de hacer la que es con crema de leche tambien.
+
 
 
